@@ -17,11 +17,11 @@ Voor Stichting Present Sound staat de totale muzikale ervaring centraal. Wij str
 ### Beleidsplan 2025-2027
 
 ### Directie
-Hinse Mutter 
+[Hinse Mutter](https://www.youtube.com/user/hinsemutter) 
 
-Albert Manders
+[Albert Manders](http://www.albertmanders.com/bio.html)
 
-Anne Veinberg
+[Anne Veinberg](www.anneveinberg.com)
 
 ### Bestuur
 Ian Frederick de Jong, Voorzitter
