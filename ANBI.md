@@ -13,6 +13,8 @@ Stichting Present Sound
 Lange Niezel 25-2,
 1012 GS Amsterdam
 
+stichingpresentsound(at)gmail.com
+
 ### Doelstelling
 Het bedenken en ten uitvoering brengen van muziekprojecten “outside the box”. Het ondersteunen van projecten waar de artiesten dichter bij het publiek staan - letterlijk en figuurlijk - o.a. door interactieve voorstellingen, intieme bezettingen en het brengen van muziek (ook) buiten de concertzaal. 
 
