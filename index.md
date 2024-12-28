@@ -6,3 +6,4 @@ Het bestuur van de stichting bestaat uit violist Ian de Jong, bassist en concert
 
 Lees [hier onze doelstelling](doelstelling.md)
 
+Alles voor de [ANBI](ANBI.md)
