@@ -6,6 +6,9 @@ Stichting Present Sound
 ### Fiscaal Nummer
 856488999
 
+### KvK Nummer
+66310490
+
 ### Contactgegevens van de instelling
 Lange Niezel 25-2,
 1012 GS Amsterdam
@@ -44,6 +47,9 @@ Pauliina Lievonen, Penningmeester
 De bestuursleden zijn onbezoldigd. De personen die voor de organisatie werken, worden geen van allen hoger bezoldigd dan 100% van de bezoldiging van een minister.
 
 ### Jaarverslagen
-
+[Jaarverslag 2023](Jaarverslag2023.pdf), [Jaarverslag 2022](Jaarverslag2022.pdf), [Jaarverslag 2021](Jaarverslag2021.pdf)
 ### Financiële verantwoording
-[Jaarrekening 2022](Jaarrekening2022.pdf), [Jaarrekening 2021](JaarrekeningPresentSound2021.pdf)
+[Jaarrekening 2022](Jaarrekening2022.pdf), [Jaarrekening 2021](JaarrekeningPresentSound2021.pdf), [Jaarrekening 2020](Jaarrekening2020.pdf)
+
+
+Terug naar de [home](https://wooloogooloo.github.io/SPS/) pagina.
