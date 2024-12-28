@@ -1,0 +1,5 @@
+theme: jekyll-theme-slate
+title: Stichting PS
+description: This is a first test, we will make it better.
+github:
+  is_project_page: false
