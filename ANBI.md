@@ -30,4 +30,4 @@ Pauliina Lievonen, Penningmeester
 De bestuursleden zijn onbezoldigd. De personen die voor de organisatie werken, worden geen van allen hoger bezoldigd dan 100% van de bezoldiging van een minister.
 
 ### Financiële verantwoording
-[Jaarverslag 2021](JaarrekeningPresentSound2021.pdf)
+[Jaarrekening 2022](Jaarrekening2022.pdf), [Jaarrekening 2021](JaarrekeningPresentSound2021.pdf)
