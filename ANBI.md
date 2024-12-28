@@ -17,13 +17,17 @@ Voor Stichting Present Sound staat de totale muzikale ervaring centraal. Wij str
 ### Beleidsplaan 2025-2027
 
 ### Directie
-Hinse Mutter
+Hinse Mutter 
+
 Albert Manders
+
 Anne Veinberg
 
 ### Bestuur
 Ian Frederick de Jong, Voorzitter
+
 Kasper Valentijn Stern, Secretaris
+
 Pauliina Lievonen, Penningmeester
 
 ### Beloningsbeleid
