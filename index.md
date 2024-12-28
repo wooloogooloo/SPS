@@ -4,5 +4,5 @@ Stichting Present Sound bestaat sinds 2016. Zoals in onze statuten staat, heeft 
 
 Het bestuur van de stichting bestaat uit violist Ian de Jong, bassist en concertorganisator Kasper Valentijn Stern en componist Anthony Leigh Dunstan. De directie van de stichting bestaat uit componist/fluitist/projectleider Albert Manders,  bassist/componist/producent Hinse Mutter en pianist/artistiek projectleider Anne Veinberg. 
 
-Lees [hier onze doelstelling](https://github.com/borrob/sps/blob/main/doelstelling.md)
+Lees [hier onze doelstelling](doelstelling.md)
 
