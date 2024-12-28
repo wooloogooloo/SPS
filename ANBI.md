@@ -14,7 +14,7 @@ Het bedenken en ten uitvoering brengen van muziekprojecten “outside the box”
 
 Voor Stichting Present Sound staat de totale muzikale ervaring centraal. Wij streven naar een actieve rol van de componist en makers en zien de contributie van een artiest ook in een bredere, meer creatieve rol.
 
-### Beleidsplaan 2025-2027
+### Beleidsplan 2025-2027
 
 ### Directie
 Hinse Mutter 
