@@ -1,6 +1,6 @@
 Stichting Present Sound werkt met de huidige culturele codes.
 
-##Governance Code Cultuur
+## Governance Code Cultuur
 Wij kiezen voor de Governance Code omdat wij voor goed bestuur en toezicht kiezen, bestaande uit:
 • duidelijkheid over het besturingsmodel en de daarbij horende verantwoordelijkheden;
 • integer en transparant handelen, met oog voor de belangen van alle betrokkenen (de stakeholders);
