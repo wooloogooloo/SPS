@@ -19,3 +19,5 @@ De culturele inhoud van de projecten streeft diversiteit na.
 ## Fair Practice Code 
 
 Wij doen ons best om iedereen goed en eerlijk te betalen en zijn daarover duidelijk en transparant in afspraken. 
+
+Terug naar de [home](https://wooloogooloo.github.io/SPS/) pagina
