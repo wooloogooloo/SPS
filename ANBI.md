@@ -36,7 +36,7 @@ Muziekreactie - Een evenement waar musici (componisten en uitvoerders) worden ui
 
 [Albert Manders](http://www.albertmanders.com/bio.html)
 
-[Anne Veinberg](www.anneveinberg.com)
+[Anne Veinberg](https://anneveinberg.com/)
 
 ### Bestuur
 Ian Frederick de Jong, Voorzitter
