@@ -1,0 +1,4 @@
+Anne Veinberg is een veelzijdige en getalenteerde pianiste, bekend om haar innovatieve benadering van muziek en haar vermogen om klassieke en hedendaagse stijlen te verbinden. Oorspronkelijk afkomstig uit Australië en nu gevestigd in Nederland, heeft ze een sterke reputatie opgebouwd als expressieve muzikante met een focus op samenwerkingen en experimenten.
+Ze treedt regelmatig op in binnen- en buitenland, zowel tijdens gerenommeerde festivals voor hedendaagse muziek als in onconventionele settings. In 2022 voltooide ze een tournee met de prijswinnende ARquatic van CodeKlavier en Felipe Ignacio Noriega, uitgevoerd in botanische tuinen door heel Nederland. Anne brengt muziek graag buiten de concertzaal, waardoor ze een breed publiek weet te bereiken.
+Of het nu gaat om solo-optredens, samenwerkingen met ensembles, of multidisciplinaire projecten, Anne Veinberg weet haar publiek te boeien en haar passie voor muzikale vernieuwing te delen.
+
